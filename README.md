@@ -25,7 +25,6 @@ I'm Logan, a student at Brigham Young University-Idaho interested in Computer Sc
 
 - 188 Contributions
 - 10 Repositories
-- 
 
 ## Let's Connect!
 
